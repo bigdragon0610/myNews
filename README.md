@@ -1,1 +1,1 @@
-https://atmarkit.itmedia.co.jp/ait/articles/2302/06/news021.html
+https://www.itmedia.co.jp/news/articles/2302/03/news082.html
